@@ -16,7 +16,7 @@ Dlaczego warto z nami pracować?
 
 Ponad 250 zrealizowanych projektów – zadowoleni klienci to nasza najlepsza wizytówka.
 
-100% pozytywnych opinii – nasi klienci doceniają naszą efektywność i jakość.
+98% pozytywnych opinii – nasi klienci doceniają naszą efektywność i jakość.
 
 Szybka realizacja – dostarczamy rozwiązania w 2–4 tygodnie.
 
