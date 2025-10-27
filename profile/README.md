@@ -1,6 +1,6 @@
 Soft Synergy – Tworzymy Software… Efektywnie
 
-Jesteśmy polskim software house’em, który od 2002 roku dostarcza rozwiązania IT dla firm z różnych branż. Specjalizujemy się w tworzeniu aplikacji webowych, mobilnych i systemów analitycznych, które pomagają naszym klientom osiągać realne efekty biznesowe.
+Jesteśmy polskim software house’em, który od 2018roku dostarcza rozwiązania IT dla firm z różnych branż. Specjalizujemy się w tworzeniu aplikacji webowych, mobilnych i systemów analitycznych, które pomagają naszym klientom osiągać realne efekty biznesowe.
 
 Co robimy?
 
